@@ -1,4 +1,4 @@
-# 👋 Bienvenu su la page de Marlène MANIRAFASHA
+# 👋 Bienvenu sur la page de Marlène MANIRAFASHA
 
 ### 📊 Data Analyst | Marketing Analytics | Risk Analytics
 
